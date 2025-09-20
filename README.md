@@ -1,1 +1,3 @@
-# life-together
+# *Life Together: A Guide to Authentic Christian Community by Dietrich Bonhoeffer*
+## *In a world that often prizes individualism and fleeting connections, Dietrich Bonhoeffer’s Life Together: The Classic Exploration of Christian Community remains a timeless and essential guide. Written in 1938 while Bonhoeffer was leading an underground seminary in Nazi Germany, the book is a deeply practical and spiritual meditation on what it means to be the church, a true fellowship of believers. It’s not a romanticized view of community, but a raw, honest look at the difficulties and profound blessings of living a life centered on Christ with others.* [More details…](https://spiritualkhazaana.com/life-together-a-guide-to-christian-community/)
+## #lifetogether #howtogetyourlifetogether #christiancommunity #confession #christianfellowship
